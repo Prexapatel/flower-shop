@@ -1,1 +1,1 @@
-# flower-shop
+# flower-shop Welcome to Daisy Dreams, your premier destination for exquisite floral arrangements and gifts. We specialize in crafting stunning bouquets for every occasion, from birthdays and anniversaries to weddings and corporate events. Our commitment to quality and freshness ensures that each arrangement brings joy and beauty to your special moments. Explore our diverse collection and experience the art of flowers with Daisy Dreams.​
